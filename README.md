@@ -1,3 +1,3 @@
 ## Sveiki!
 
-Esmu traks cilvēks. Nepārtraukti lēkāju un skraidu pa ielām. Brēkt arī sanāk.
+Šeit varat atrast dažus no maniem projektiem. Lielākoties - darbi priekš skolas.
